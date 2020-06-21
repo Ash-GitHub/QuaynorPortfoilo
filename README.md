@@ -1,2 +1,0 @@
-# QuaynorPortfoilo
-My Portfoilo
